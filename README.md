@@ -38,6 +38,6 @@ Leveraging cloud platforms for end-to-end data solutions
 
 📫 Let's Connect!
 
-📧 Email: preetjag999@gmail.com💼 LinkedIn🌐 Portfolio - Coming Soon!
+📧 Email: preetjag999@gmail.com💼 LinkedIn- linkedin.com/in/jagpreetsinghuk Portfolio - Coming Soon!
 
 "Data is the fuel of the digital age, and I thrive on transforming raw data into actionable insights!"
